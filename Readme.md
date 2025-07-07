@@ -1,2 +1,2 @@
 # Список
-1. [Let it snow](let-it-snow-tabs.md)
+1. [Let it snow](let-it-snow/tabs.md)
