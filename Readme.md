@@ -8,4 +8,6 @@
 1. [Somebody That I Used to Know](somebody-that-i-used-to-know/tabs.md)
 1. [The Addams Family](the-addams-family/tabs.md)
 1. [Люмен - Гореть](lumen-goret/tabs.md)
+1. [CG5 - Sleep Well](cg5-sleep-well/tabs.md)
+1. [Extreme - More Than Words](extreme-more-than-words/tabs.md)
 
