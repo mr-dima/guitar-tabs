@@ -1,5 +1,5 @@
 ###### [Back](../Readme.md)
-# [Somebody That I Used to Know](tabs.md)
+# [Gotye - Somebody That I Used to Know](tabs.md)
 Now and then, I think of when we were together  
 Like when you said you felt so happy you could die  
 Told myself that you were right for me  
