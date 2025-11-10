@@ -82,6 +82,7 @@
 1. [Полина Гагарина - Кукушка](p-gagarina-kukuska/tabs.md)
 1. [Panic! At the Disco - House of Memories](panic-of-the-disco-house-of-memories/tabs.md)
 1. [Pirates of Caribbean](pirates-of-caribbean/tabs.md)
+1. [Прекрасное далёко](prekrasnoe-daleko/tabs.md)
 1. [Queen - Don't Stop Me Now](queen-dont-stop-me-now/tabs.md)
 1. [Queen - The Show Must Go On](queen-show-must-go-on/tabs.md)
 1. [Radiohead - Creep](radiohead-creep/tabs.md)

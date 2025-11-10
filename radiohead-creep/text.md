@@ -28,3 +28,20 @@ But I'm a creep
 I'm a weirdo  
 What the hell am I doin' here?  
 I don't belong here  
+Oh-oh, oh-oh  
+
+She's runnin' out the door  
+She's runnin' out  
+She run, run, run, run  
+Run  
+
+Whatever makes you happy  
+Whatever you want  
+You're so fuckin' special  
+I wish I was special  
+
+But I'm a creep  
+I'm a weirdo  
+What the hell am I doin' here?  
+I don't belong here  
+I don't belong here  
